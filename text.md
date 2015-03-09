@@ -1,0 +1,84 @@
+I Want Better is that "easier" enablement. It's a new way to deal with the abortion topic.
+
+Instead of one side or the other, I Want Better enables you to stand for what you believe in, even next to others whose beliefs are not exact to yours. #goodforall
+
+These three words (I Want Better) take a difficult topic usually navigated by people groups - religion, race, politics, etc. - to a stripped down individualized version. The realization that only I can give myself better is hugely needed in the current rut of thinking. No government, no church and no law can give me better or anyone else ultimately. In the formation of sides we are spending our time and efforts working against each other. The information here works to erase sides and introduce the enablement of individual application with the hopeful idea that it becomes contagious.
+
+The statement I Want Better is meant to be the residual response to the question “What is your stance on abortion?” It does a few revolutionary alterations to this societal dead topic, while taking its user to the heart of the matter, plus providing progressive propellment.
+
+The Official Icon of the I Want Better campaign is the greater than symbol (>).
+
+This mark was chosen to represent this cause because of its origin and the disposition it conveyed. It was found in the topic itself: Abortion. Turning the capital A on it’s side posed a powerful question (What is better than abortion) and created a beautiful empty space that was inviting to the user. This is an altogether different disposition than what we currently possess and a different campaign functionality to that which we find in prochoice and prolife. It’s not based on group use and instead of a campaign that tries to provide the answer, it simply provides the question and goes on to accept the fact that there are many answers needed to truly solve this issue.
+
+Inspiring and enabling change will lead us to better. Legislation, policy, guilt, emotional ploy, hate & animosity will not give it to us. #inspirechange
+
+Below you will find an expanded commentary to the video playing above. Throughout you will see #hashtags that will enable you to easily lift content and take it with you. Enjoy.
+
+Abortion Sucks & So Does Government Control
+
+This may be a bit of a juvenile statement yet iconic in the least and most of all - side transcending. It instantly says I am on neither side. It’s deep if you let it sink in and if not, it’s still very catchy. #fresh
+
+So, is this "prochoice" or "prolife"?
+
+I want nothing to do with pro choice vs pro life,* but I do believe we - the human race - can do better than abortion. *or vice versa.
+
+In most cases if the topic of abortion is being spoken of these terms are involved. This blurb wants to make very clear that this campaign is not about either of these terms, but about the superlative pursuit of better - a very subjective term, yes. The user should be free to use it personally. #notprolife #notprochoice #iwantbetter
+
+The asterisk is there to convey that this blurb is not meant to pick on either of those campaigns in particular. These simple critiques are meant for one thing - timely liberation.
+
+It’s a problem that the word abortion only exists in the context of debate.
+
+Why do we see such love, creativity, and progressive thinking applied to other human issues, but not to this one? It’s a problem I Want Better aims to solve, first by empowering the individual then by finding our common ground, hence the next blurb -
+
+Yet inarguably - WE CAN DO BETTER.
+
+We probably will never all see eye to eye, but there are commonalities we can embrace and there is a common ground on which we can meet. What is better? It’s going to be different to every user but here is a basic beginning list -
+
+MEDICINE is Better. ADOPTION is Better. PEOPLE are Better. CHOICE is Better.
+
+The examples here ambiguously break the mold of both categorical sides in a thought provoking, artful and inspirational way. The topic needs such thrust, such allowance. These public service announcements help. #abortion
+
+Prolife vs Prochoice should not be the only way for us to deal w/the abortion topic.
+
+They’re simply not engineered for the vast majority of public use. We need something that it is. I Want Better aims to be that. Even though 7 billion humans pursuing what they each define as better might seem problematic, it is a much improved atmosphere for us to apply our efforts to this cause. The purposeful subjectivity and abstractness of this campaign is meant to bring a paradigm shift that allows all of us, as differing as we may be, to be part of a bigger whole without disabling logistics. #7Billion
+
+A Common Goal - LET’S SOLVE OUR NEED FOR ABORTION. Ps. Outlawing is Not Solving.
+
+The realization of an achievable goal would be a very empowering shift from where we are now. Are you either an advocate of a practice that simply is not our best or are you for the increase of government control? Neither of these are our best. Of all the amazing things we have done together as the human race - exploration of the entire earth including the depths of the sea and outer space, the combustion engine, jet propulsion, news plus instant connection to the whole world at the touch of a finger /24 hours a day, cures for age old diseases, racial and gender equality - we should just be able to do better than abortion. I Want Better is a call to the innate innovative spirit of mankind to create real solution to this topic and build a better tomorrow. #HumansCan
+
+PREVENTION is Better. SCIENCE is Better. TECHNOLOGY is Better.
+
+Here the ongoing list of what is better continues. It is important to understand the I Want Better campaign is not the only purveyor of such information, the individual user provides the answers. The campaign does not supply a guide to the correctness or validity of use, the user is free to decide that themselves. Even if one user looks at another users answer as absurd, incorrect or ineffective - I Want Better sees an increased user base as progression and a better place for us to be. You can hardly even talk about this topic in current society productively. That is sad.
+
+ALTERNATIVES are Better. LIFE is Better. WE are Better.
+
+The list of what is better is not ruled by extremists or their viewpoints, but instead it calls to all humanity. It implores us to reach for better, to be our best. Hence, the Official Color of this campaign is Metallic Gold (and other forms of yellow). Gold is a reminder in a universal language to be the best we can be. Go for Gold. #goforgold
+
+INSPIRE CHANGE
+It’s a More Worthy Cause than Legislating it
+
+Real change may not ever come from any other source. It’s been told to us throughout the years that if you want change start with yourself. Do! You’re worth it. Others may watch and learn while seeing new possibilities attainable. All by the simple, personal pursuit of individuals wanting better. This can achieve more than a rulebook or law ever could.
+
+CREATIVITY >
+INNOVATION >
+YOU >
+
+Our history suggests that our conduct toward abortion has not been our best. The subjects here, plus many others are being called out. A lot of developments need to occur, I Want Better hopes to be the basis for such.
+
+THIS CAMPAIGN EXISTS TO BE: The Structure & Stability of the World’s Efforts as we Work Step by Step in Solving Our Need for Abortion.
+
+The very simplistic mentality contained in the three words I Want Better, facilitates the ability for us, even in all our differences, to be together under a basic campaign. Starting first and foremost with self and perhaps self only. I Want Better allows any level of commitment from it’s user. The abortion topic needs such freedom of use. #finally
+
+THIS IS A CAUSE, NOT A DEBATE.
+
+There is a foaming at the mouth by some users when engaged with this topic. It is important to understand this cause needs our love, our creativity and if at all possible our togetherness. This is a cause, not a war against each other. #causenotdebate
+
+THIS IS NOT RELIGION.
+
+You do not have to be religious to be a part of or to use the I want Better campaign. Wanting better and or believing humanity is capable of more does not come with the mandate to belong to any religion. Whatever you call yourself, whoever you are - I Want Better is for you. Want better anyway you see fit and I will do the same, hopefully there will be 7 billion other users. That is change. #iLikeIWantBetter
+
+THIS IS NOT POLITICS. THIS IS FOR YOU.
+
+This cause is so wrongfully handicapped by the side vs side disposition of world politics, it is very important to break free of this. Allowing users the ability to deal with this topic in an effective and productive manner will urge on a thriving of solutionable steps. #userfriendly
+
+I Want Better - mainly because that is all I have real control of, myself.
